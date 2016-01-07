@@ -1,2 +1,1 @@
-# QDNB
-my first repository
+I want to take this time to thanks the Lord for the blessings that He continue to grant me. I'm a Newyorican guy that takes pride on what he do, I also to tell you the truth realy confused of whats going on on this class, all I ask you is for some patience with me I realy want to learn. Thank you for having me.
